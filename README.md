@@ -1,1 +1,5 @@
-# Reporte-practica-1fp20-Rogelio-Gonzalez-Nu-ez
+Rogelio Gonzalez Nuñez
+22 años
+ingenieria mecanica
+ir al gimnasio
+Tacos 
